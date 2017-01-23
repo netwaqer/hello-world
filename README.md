@@ -1,1 +1,2 @@
 # hello-world
+I am 30 years old, and i want become most powerful and skillful prommer, to express my ideas it programming code. I have technical education, and 5 years experince on productive with ruling over 35 people, I was able to motivate and create from this group a team that follow my ambitions. And for that moment I am full of anysort of ideas and dream to programm them and create a new world.
